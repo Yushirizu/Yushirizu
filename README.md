@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on nothing<br>🌱 I’m currently learning C and web development<br>📫 How to reach me: Discord: @yushirizu Twitter: @yushirizu<br>😄 Pronouns: Him<br>⚡ Fun fact: I like vtubers
+🔭 I’m currently working on nothing<br>🌱 I’m currently learning C and web development<br>📫 How to reach me: Discord: @yushirizu Twitter: @yushirizu<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I like vtubers
 
 
 ## 🌐 Socials:
